@@ -1,0 +1,2 @@
+# meritking
+Meritking Dolandırıcılar Kralı 
